@@ -1,2 +1,2 @@
 Jason Noble
-Some other student
+John Mani
